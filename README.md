@@ -4,7 +4,7 @@ By inviting Forums you agree that you have read, understood, and accepted these 
 
 ### Disclaimer
 
-You are strictly prohibited to use Forums against the ToS of discord or for illegal purposes. We are doing our best to prevent these activities, while trying to provide the best user experience as possible. If you find people or communities using Forums against the ToS of discord or even for illegal activities, please send us an email to me@elefante.wtf.
+You are strictly prohibited to use Forums against the ToS of discord or for illegal purposes. We are doing our best to prevent these activities, while trying to provide the best user experience as possible. If you find people or communities using Forums against the ToS of discord or even for illegal activities, please send us an email to me@eren.legal.
 
 ### Proprietary Rights
 
